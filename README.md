@@ -37,1158 +37,126 @@ This keyboarded and encoded edition of the
 
 #####Body#####
 
-1. ¶The Firſt Buik.
+1. ¶The actis and Deidis of the Illuſter and Vailȝeand Campioun, Schir William Wallace, Knicht of Ellerſlie.
 
-    _ ¶The Wynning of Berwik. Cap. ij.
+    _ ¶The Firſt Buik.
 
-    _ ¶The Battell of Dunbar. Cap. iij.
+      * ¶The Wynning of Berwik. Cap. ij.
 
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
+      * ¶The Battell of Dunbar. Cap. iij.
 
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
+      * ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
 
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
+      * ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
 
-    _ Cap. j.
+      * ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
 
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
+    _ ¶The Secund buik declairis how Wallace ſlew the Churll with his awin ſtaf in Air.
 
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
+      * Cap. j.
 
-    _ ¶The Battell of Lowdoun hill.
+      * ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
 
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
+      * ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
 
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
+      * ¶The Battell of Lowdoun hill.
 
-    _ Cap. j.
+    _ ¶The Thrid Buik.
 
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
+      * How ye Ingliſmē tuik peice with Wallace. Ca. ij
 
-    _ ¶Schortwod Schawis. Cap. iij.
+      * ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
 
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
+    _ ¶The Fourt buik declairis how Wallace wan the P•ill of Cargunnok.
 
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
+      * Cap. j.
 
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
+      * How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
 
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
+      * ¶Schortwod Schawis. Cap. iij.
 
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Secund buik declairis how Wallace ſlew the Churll with his awin ſtaf in Air.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Thrid Buik.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Fourt buik declairis how Wallace wan the P•ill of Cargunnok.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
+      * ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
 ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. 
-    _ ¶The Wynning of Berwik. Cap. ij.
+      * ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
 
-    _ ¶The Battell of Dunbar. Cap. iij.
+      * ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
 
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
+      * ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
 
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
+    _ ¶In this Sext Buik is declarit the Spouſage of Wallace, and how Heſſilrig ſlew Wallace wyfe in the Toun of Lanerk, and how he •ew Heſſilrig for the ſamin cauſe, and put the Ingliſmen out of Lanerk.
 
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
+      * ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
 
-    _ Cap. j.
+      * ¶The Battell of Bigar,
 
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
+    _ ¶The Seuint part of this Buik declairis how Wallace brynt ye Bernis of Air, and put Biſchop Beik out of Glaſgow, & ſlew Lord Perſee.
 
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
+      * Ca. j.
 
-    _ ¶The Battell of Lowdoun hill.
+      * ¶How Wallace ſlew Makfadȝean. Ca. ij.
 
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
+      * ¶How Wallace wan Sanct Iohnſton. Ca. iij.
 
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
+      * ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
 
-    _ Cap. j.
+    _ ¶The aucht part of yis buik declairis how Wallace put Corſpatrik out of Scotland.
 
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
+      * Ca. j.
 
-    _ ¶Schortwod Schawis. Cap. iij.
+      * ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
 
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
+      * ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
 
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
+      * ¶The Seige of Ȝork. Ca. iiij.
 
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
+      * ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
 
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
+    _ ¶The Nynt part of this buik declairis how Wallace paſt in France.
 
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
+      * Cap. j.
 
-    _ ¶The Battell of Bigar,
+      * ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
 
-    _ Ca. j.
+      * ¶How Wallace paſt in Guyan. Cap. iii.
 
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
+    _ ¶The Tent Buik declairis how Wallace wan Sanct Iohnſtoun be ane Ieopardie.
 
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
+      * Ca. j.
 
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
+      * ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
 
-    _ Ca. j.
+      * ¶The wynning of Lochleuin. Cap. iij.
 
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
+      * ¶The wynning of Erth. Cap. iilj.
 
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
+      * ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
 
-    _ ¶The Seige of Ȝork. Ca. iiij.
+      * ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
 
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
+    _ ¶The Elleuint Buik declairis the Battell of the Fawkirk.
 
-    _ Cap. j.
+      * Cap. j.
 
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
+      * ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
 
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
+      * ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
 
-    _ Ca. j.
+    _ ¶The Twelft Buik declairis how Wallace Conqueiſt the land of Guyan, and how he was maid Lord thairof.
 
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
+      * Cap. j.
 
-    _ ¶The wynning of Lochleuin. Cap. iij.
+      * ¶How Wallace ſlew the twa Campiounis. Cap. i•.
 
-    _ ¶The wynning of Erth. Cap. iilj.
+      * ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
 
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
+      * ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
 
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
+      * ¶The Seige of Sanct Iohnſtoun.
 
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶In this Sext Buik is declarit the Spouſage of Wallace, and how Heſſilrig ſlew Wallace wyfe in the Toun of Lanerk, and how he •ew Heſſilrig for the ſamin cauſe, and put the Ingliſmen out of Lanerk.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Seuint part of this Buik declairis how Wallace brynt ye Bernis of Air, and put Biſchop Beik out of Glaſgow, & ſlew Lord Perſee.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The aucht part of yis buik declairis how Wallace put Corſpatrik out of Scotland.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Nynt part of this buik declairis how Wallace paſt in France.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Tent Buik declairis how Wallace wan Sanct Iohnſtoun be ane Ieopardie.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Elleuint Buik declairis the Battell of the Fawkirk.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
-
-1. ¶The Twelft Buik declairis how Wallace Conqueiſt the land of Guyan, and how he was maid Lord thairof.
-
-    _ ¶The Wynning of Berwik. Cap. ij.
-
-    _ ¶The Battell of Dunbar. Cap. iij.
-
-    _ ¶How King Edward and Corſpatrik come to S•one, and put doun Iohne Ballioun, and had with yame ye A•ris of Scotland. Cap. iiij.
-
-    _ ¶How Wallace ſlew ȝoung Selbie, the Conſtabillis Sone of Dundie. Cap. v.
-
-    _ ¶How Wallace paſt to the watter of Irwyn to tak Fiſche. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew Lord Peirſeis Stewart, and was tane and preſonit in Air. Cap. ij.
-
-    _ ¶How Wallace was preſonit in Air and eſchaipit. Cap. iij.
-
-    _ ¶The Battell of Lowdoun hill.
-
-    _ How ye Ingliſmē tuik peice with Wallace. Ca. ij
-
-    _ ¶How Wallace ſlew the Buklar player in the toun of Air. Cap. iij.
-
-    _ Cap. j.
-
-    _ How Wallace paſt to Sāct Iohnſtoun & ſlew ye Capitane, & how he wan Kincleuin. Cap. ij.
-
-    _ ¶Schortwod Schawis. Cap. iij.
-
-    _ ¶How Wallace was ſauld to Ingliſmen be his Lemmane. Ca. iiij.
-
-    _ ¶How Wallace eſchaipit out of Sanct Iohnſtoun and paſt to Elchok Park. And how he ſlew Faudoun. Ca. j▪
-
-    _ ¶How Wallace paſt to Lochmabane, and how thay cuttit his hors taillis, and how he ſchaif the blude latter. Ca. ij.
-
-    _ ¶How Wallace wan ye Caſtel of Craufurd, and how he ſlew the Capitane thairof. Ca. iij.
-
-    _ ¶Heirof as now, farther I ſpeik na mair, Bot to my purpois ſchortly will I fair.
-
-    _ ¶The Battell of Bigar,
-
-    _ Ca. j.
-
-    _ ¶How Wallace ſlew Makfadȝean. Ca. ij.
-
-    _ ¶How Wallace wan Sanct Iohnſton. Ca. iij.
-
-    _ ¶How Wallace laid ane Seige to Dundie, and how he gait battel at the brig end of Striuiling to Kirkinghame yat was Theſaurar to Edward King, and to ye Erll or Warrane. Ca. iiij.
-
-    _ Ca. j.
-
-    _ ¶How Corſpatrik brocht in Scotland Biſchop Beik and Robert the Bruce, and how Wallace gaif thame battell, and put thame out of Scotland. Ca. ij.
-
-    _ ¶How Wallace paſt in Ingland, and remanit yair thre quarteris of ane ȝeir, and come hame agane but battell. Ca. iij.
-
-    _ ¶The Seige of Ȝork. Ca. iiij.
-
-    _ ¶How the Quene of Ingland come and ſpak with Wallace. Ca. v.
-
-    _ Cap. j.
-
-    _ ¶How Wallace paſt in France, and faucht wit• the Reid Reuar and vincuſt him. Cap. ij.
-
-    _ ¶How Wallace paſt in Guyan. Cap. iii.
-
-    _ Ca. j.
-
-    _ ¶The Battell of Blak Irne ſyde Foreſt. Ca. ij.
-
-    _ ¶The wynning of Lochleuin. Cap. iij.
-
-    _ ¶The wynning of Erth. Cap. iilj.
-
-    _ ¶How Wallace brynt the Ingliſmen in Dunbertane. Cap. v.
-
-    _ ¶How Schir William Dowglas wan the Caſtell of Sauquhair be ane Ieopardie, and how William Wallace reſke wit him fra the Ingliſmen, and put thame out of that part. Cap. vj.
-
-    _ Cap. j.
-
-    _ ¶How Wallace met with Iohne of Lyn vpon the ſey. Cap. ij.
-
-    _ ¶How Edward King of Ingland come in Scotland and maid haill Conqueis thairof. Cap. iij.
-
-    _ Cap. j.
-
-    _ ¶How Wallace ſlew the twa Campiounis. Cap. i•.
-
-    _ ¶How Wallace ſlew the Lyoun in the Barrace. Cap. iij.
-
-    _ ¶How Wallace come in Scotland agane at the Battell of Elchok Park. Cap. iiij.
-
-    _ ¶The Seige of Sanct Iohnſtoun.
-
-    _ ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
+      * ¶How Wallace was betraiſit be Schir Iohn of Menteith, and had in Ingland, and Martyrit thair. Cap. v.
 
 #####Back#####
-The actis and deidis of the illuster and vailzeand campioun, Schir William Wallace, knicht of Ellers
+¶Imprentit at Edinburgh be Robert Lekpreuik at the Expenſis of Henrie Charteris, & ar to be ſauld in
 **Types of content**
 
   * There are 11858 **verse** lines!
